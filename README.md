@@ -1,3 +1,3 @@
 # chandryan
 
-chanda mama dur k(isro)
+chanda mama dur k
